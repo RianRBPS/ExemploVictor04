@@ -1,1 +1,1 @@
-oi tudo bem? tudo e vc?
+oi bem? tudo A Vc?
